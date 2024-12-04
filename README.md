@@ -1,2 +1,2 @@
 # kolejne_zadanie
-yddsskk
+kys
